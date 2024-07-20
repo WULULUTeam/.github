@@ -5,7 +5,7 @@
 
 🙋‍♀️ 诚邀各位同担加入我们乌鲁鲁星工作室，你的支持对我们来说非常重要！
 
-👩‍💻 关于网站建设的任何建议和想法欢迎和我们联系：wullulu1016sxh
+👩‍💻 关于网站建设的任何建议和想法欢迎和我们联系：wullulu1016sxh@163.com
 <!--
 
 **Here are some ideas to get you started:**
